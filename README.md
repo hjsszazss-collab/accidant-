@@ -1,1 +1,1 @@
-# accidant-
+# accident-
